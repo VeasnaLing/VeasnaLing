@@ -18,5 +18,5 @@ Here are some ideas to get you started:
 -->
 - ⚡ Fun fact: ...
 - I like to workout and create artwork.
-
+- My current profile picture is a self portrait I drew.
 
